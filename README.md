@@ -1,0 +1,2 @@
+# PRIYA-STRAWBERYY-PRIVACY-POLICY
+Privacy Policy for Discord
